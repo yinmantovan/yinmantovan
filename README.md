@@ -9,6 +9,11 @@
 - ⚡ Fun fact: Love legos, I have built a lot of designs and mosaics. 
 
 
+Projects:
+https://www.dialogare.com.br
+https://www.naoestudeaprenda.com.br
+
+
 <!--
 **yinmantovan/yinmantovan** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
